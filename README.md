@@ -1,1 +1,0 @@
-# Gelincik-Cicegime
